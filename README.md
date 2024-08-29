@@ -1,4 +1,4 @@
-<img src=https://github.com/user-attachments/assets/ecd05510-50b2-41e5-9110-d046acd678ae width="300")
+<img src=https://github.com/user-attachments/assets/ecd05510-50b2-41e5-9110-d046acd678ae width="300">
 
 **Title**: Prioritizing-Health-Care-Strategies
 
